@@ -2,6 +2,8 @@
 
 **Software Team Leader | full-stack developer | instructor | mentor**
 
+I’m a passionate Software team lead | mentor | instructor
+
 With 10+ years of experience and challenges, and a solid knowledge of front-end, back-end, mobile development, and DevOps engineering (certified by Google) you can trust my abilities confidently.
 
 In addition to good knowledge of other fields like e-marketing, SEO, and business development.
